@@ -43,4 +43,4 @@ Moje repozytoria to nie tylko czysty kod – to próba przełożenia psychologii
 
 ### 📬 Znajdziesz mnie też tutaj:
 
-*   Więcej o moim profilu zawodowym: [LinkedIn](https://linkedin.com/marta-cmil)
+*   Więcej o moim profilu zawodowym: [LinkedIn](https://linkedin.com/in/marta-cmil)
